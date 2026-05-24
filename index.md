@@ -1,4 +1,4 @@
-# Privacy Policy for WealthMap
+# Privacy Policy for PePE
 **Last Updated: May 2026**
 
 PrPE is committed to protecting your privacy. This policy explains how we handle data.
